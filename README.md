@@ -1,0 +1,1 @@
+# allec-privacy-policy
